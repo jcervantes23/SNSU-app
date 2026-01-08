@@ -1,1 +1,0 @@
-# SNSU-app
